@@ -33,6 +33,32 @@ MFA beats Phishing
 Social Engineering beats MFA
 Training beats Social Engineering
 
+The circular lock is not a lock at all. It is an inscription, and the letters
+crawl when you look at them. Blorbo wrote that it turns on a word rather than
+a number - the name of his eldest ram.
+
+```
+CLLXHJ, ahy Oaudye, xvrarv ahcf dvce - fwjohq gm tbr xpvy astem, gzvuau ol giodpnm jwye nbdk nyiwy ti pgbnn gzlm uygbd.
+
+Nuw sowx vvem aga ojrf mol n cly. Cg gwehf xvr u tste.
+
+Sbm rnij xvul bx ahy emsem ndyeuqq. Oelr sye nuw yemg:
+
+Hoimuaug vrsas Jnkzwiev hnx Gjhihvfn.
+MZN tlanf Hoimuaug uav Wamfovrx.
+Fgjiuy Wugcawlrcay ieugk TFU nfk Pbvkoiht.
+Lyacaaug vrsas Mbupaf Rfnihrwyiht sud GSS.
+Wamfovrx owhtm Gjhihvfn ahq Kvccnd Lnavflelvfn.
+
+Tbr ybalq hsasf ldo bnfks ug gucy. Aste nuw vny gzpna gzht vrsas nuwt bigz.
+
+Milfl oe jysfs GSS hnx Czpsbvfn.
+Tbrf oe jysfs Jnkzwiev hnx Gjhihvfn.
+Lufl oe jysfs Mbupaf Rfnihrwyiht sud GSS.
+
+Zpync fooe loryr susqrjz ih gzht ievlr, dbauex oq oyjuwus, uyd pn fbolr wnkl, wcgz uo mcsjem vfzixr s uagr. Loan vk ahy eghd iaohrx sjvm vbynsbhynonu.fltfvxf.ajc.
+```
+
 
 You open the warehouse door.
 
